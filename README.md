@@ -1,4 +1,4 @@
-##Wilujeng Tepang, I'm Zhafran 👋
+## Wilujeng Tepang, I'm Zhafran 👋
 
 -:heart: I have an obsession with design and the possibilities of human-computer interaction. 
 - 🌱 I’m currently learning ...
